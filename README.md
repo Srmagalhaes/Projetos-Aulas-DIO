@@ -10,7 +10,7 @@ Estou fazendo diversos cursos na DIO e criei este repositório para incluir:
 
 Fique a vontade para enviar-me um feedback, será fundamental para meu desenvolvimento. 💪 🙏
 
-Se desejar pode entrar em contacto 😊
+Se desejar pode entrar em contato 😊
 
 - Linkedin: [Samuel Magalhães](https://www.linkedin.com/in/samuell-magalhaess/) 
 
